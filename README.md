@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @bambo823
-- 👀 I’m interested in web3 
+- 👀 I’m interested in Web3, Crypto, NFTs, Chess, Puppies.
 - 🌱 I’m currently learning coding from scratch
 - 💞️ I’m looking to collaborate on lessons
 - 📫 How to reach me Twitter @bambo823
