@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @bambo823
+- 👋 Gm, I’m @bambo823
 - 👀 I’m interested in Web3, Crypto, NFTs, Chess, Puppies.
 - 🌱 I’m currently learning coding from scratch
-- 💞️ I’m looking to collaborate on lessons
+- 💞️ I’m looking to collaborate on anything that might bring me more exp!
 - 📫 How to reach me Twitter @bambo823
 
 <!---
